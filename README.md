@@ -1,0 +1,2 @@
+# indirimbom
+just list
